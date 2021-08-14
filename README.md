@@ -1,0 +1,1 @@
+# minastahura.webmap
